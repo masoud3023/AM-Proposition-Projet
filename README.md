@@ -4,7 +4,7 @@ Proposition d'un projet
 
 Proposition du projet
 
-	Ci-dessus les contours d’un projet professionnel éducatif à usant le traitement automatique des langues (NLP) pour l’obtention des certification de l’anglais professionnel. Ce projet étant en période de mise au point pratique, n'a presque pas besoin d’un investissement, juste une structure adminstrative enregistrée, une équipe restreinte encadrée et motivée pour entamer et aller vers l’obtention du certificat. Ce projet sera également le sujet d’une évaluation universitaire en vue de la validation des méthodes pédagogique utilisées.
+	Ci-dessus les contours d’un projet professionnel éducatif usant le traitement automatique des langues (NLP) pour l’obtention des certification de l’anglais professionnel. Ce projet étant en période de mise au point pratique, n'a presque pas besoin d’un investissement, juste une structure adminstrative enregistrée, une équipe restreinte encadrée et motivée pour entamer et aller vers l’obtention du certificat. Ce projet sera également le sujet d’une évaluation universitaire en vue de la validation des méthodes pédagogique utilisées.
 
 	Une certification a pour but la connaissance générale dans 3 axes de : la compréhention, la conversation ainqi que la connaissance grammaticale, elle ne vise pas une branche professionnelle précise. Afin d’être plus pertinent, des modules sont prévus pour divers secteurs professionnels (l’hôtellerie, l’industrie, commerce, …) pour que la certification soit à la fois valorisante et ornée d’une utilité immédiate.
 
