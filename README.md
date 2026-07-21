@@ -16,5 +16,6 @@ Proposition du projet
 
 	Disponible pour vous fournir toutes les information nécessaires, vous pouvez me contacter au malamzadeh@yahoo.fr / 06.13.72.90.86.
 
-cdt                                                                                                                    A.M.
+cdt
+A.M.
 
